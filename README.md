@@ -1,3 +1,1 @@
 ![](https://files.catbox.moe/nsioxo.png)
-
-  ![](https://64.media.tumblr.com/fa841169225b9cc793a071f30c749484/e63f002f858d1dc7-fb/s250x400/f888d2c27e519a595816f37bc95d020186e25f91.gif) ![](https://files.catbox.moe/3sy1rv.gif)
